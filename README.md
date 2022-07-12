@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @alxklso
 - 🛰 I’m interested in the space industry. More specifically, I am interested in CubeSats - a subclass of miniature satellites!
-- 💻 I’m looking to collaborate on projects related to space technology.
+- 💻 I’m open to collaborating on projects related to space technology in any capacity!
 - 📫 You can reach me by email: ark594@nyu.edu. Or, follow me on Instagram: @alxklso
